@@ -1,4 +1,3 @@
-### Olá! Tudo bem? 👋
 
 * Hi! I'm Natália Araujo de Oliveira
 * I'm continuously working on enhancing both my automation and soft skills
